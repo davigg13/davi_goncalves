@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 💙
 
 Meu nome é Davi Gonçalves Grayurel
 
@@ -10,4 +10,4 @@ Meu nome é Davi Gonçalves Grayurel
 
 grayureldavi@gmail.com
 
-![](https://preview.redd.it/85w1x396z2991.gif?width=896&format=mp4&s=a1633a0fbd1df048da362ce1988da156cecfd881)
+![](https://media1.tenor.com/m/ykQ_uaGvF8UAAAAC/niko-one-shot.gif)
